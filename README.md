@@ -1,0 +1,2 @@
+# premium-ground-stone-001-ground-stone-axe-head-pecking
+Tired of losing track of hours spent pecking and polishing your stone axe heads, only to forget which grit or technique worked best?  This Notion template centralizes every detail of your ground stone axe head projects—stone type, pecking duration, polishing stages, technique notes, and progress photos. No more scattered notes or lost insights. It'
